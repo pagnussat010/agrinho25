@@ -1,1 +1,1 @@
-# agrinho25
+os códigos foram extraídos do ChatGPT, com algumas modificações no começo, para explicar como joga, no final para parabenizar e dizer que você conectou o campo e a cidade e para vc clicar na tecla "R" para recomeçar# agrinho25
